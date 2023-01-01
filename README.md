@@ -1,2 +1,2 @@
 # GRIND-2023
-Grinding
+No mula for you :)
